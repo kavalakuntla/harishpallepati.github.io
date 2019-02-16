@@ -4,9 +4,9 @@ I am Harish Pallepati, currently working as Pricing Analyst Intern with Volvo Gr
 
 You are about to hear a great fighter's story. #Forged with a will to achieve #I'm born ready
 
-I have been born and brought in a small town in India. With a great motivation from my parents, I topped my school examinations and planned to head college. --Worthy Mention: I had a perfect score in Science and Mathematics-- 
-So, what would be the first option for a small town kid about his future, who has never came across internet or smartphone?
-Experiences and advices of the elderly and educated.
+I was born and brought in a small town in Southern India. With a great motivation from my parents, I topped my school examinations and planned to head college. --Worthy Mention: I had a perfect score in Science and Mathematics-- 
+So, what would be the first option for a small town kid to plan for his future, who has never came across internet or smartphone?
+It's experiences and advices of the elderly and educated.
 
 After a lot of informative discussions, I have decided to pursue AIEEE for those who don't know it, It's second most valued National Level Entrance Exam for Undergraduate Studies.
 
