@@ -1,6 +1,6 @@
-## Welcome to GitHub Pages
+## About me 
 
-You can use the [editor on GitHub](https://github.com/harishpallepati/harishpallepati.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+I am Harish Pallepati, currently working as Pricing Analyst Intern with Volvo Group. Also, I'm a Grad student majoring in Business Analytics at University of Texas at Dallas. I have more than 4 years of eperience in diversed fields such as mentoring, reporting and finance.
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
