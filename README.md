@@ -1,4 +1,4 @@
-# About me 
+## About me 
 
 I am Harish Pallepati, currently working as Pricing Analyst Intern with Volvo Group. Also, I'm a Graduate student majoring in Business Analytics at University of Texas at Dallas. I have more than 4 years of eperience in diversed fields such as Mentoring, Reports buiding Finance, Travel and Manufacturing.
 
