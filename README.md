@@ -2,7 +2,7 @@
 
 I am Harish Pallepati, currently working as Pricing Analyst Intern with Volvo Group. Also, I'm a Graduate student majoring in Business Analytics at University of Texas at Dallas. I have more than 4 years of eperience in diversed fields such as Mentoring, Reports buiding Finance, Travel and Manufacturing.
 
-You are about to read a great fighter's story. **Forged with a will to achieve #I'm born ready**
+You are about to read a great fighter's story. **#Forged with a will to achieve #I'm born ready**
 
 I was born and brought in a small town in Southern India. With a great motivation from my parents, I topped my school examinations and planned to head college. --Worthy Mention: I had a perfect score in Science and Mathematics-- 
 So, what would be the first option for a small town kid to plan for his future, who has never came across internet or smartphone?
