@@ -18,7 +18,7 @@ IIT(ISM) Dhanbad has provided a great stage to explore new opportunities and fos
 
 I followed my heart and started full time job as an Assistant Professor of Mathematics at FIITJEE Ltd, Kochi. As it was a fairly new office, I took additional responsibilty of buiding reports and monitoring student progress as BI Analyst.  
 
-Life changing event:
+**Life changing event**:
 
 
 ### Markdown
