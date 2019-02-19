@@ -12,7 +12,8 @@ It's experiences and advices of the elderly and educated.
 After a lot of informative discussions, I have decided to pursue AIEEE. For those who don't know it, It's second most valued National Level Entrance Exam for Undergraduate Studies in India. But, after heading to the college, destiny wanted me to explore something else more complex and interesting i.e. IIT-JEE. Top ranked examination in India, holds a top 10 position across World.  
 
 I was able to crack it with a great will to succeed and support from my mentors and friends. I was very glad to clear the exam but that ecstasy didn't last long. **Why ?**
-Here comes the challenging part, I did not know which course to choose to pursue my bachelors. _I'm the first engineer in my family from both maternal and paternal side_ 
+
+Here comes the reason, I did not know which course to choose to pursue my bachelors. I had no one in my family to discuss about what would better align to my interests. _I'm the first engineer in my family from both maternal and paternal side_ 
 
 With my interest in Mathematics, coupled with advices from my dad's colleagues, I decided to pursue Electronics & Communications Engineering with focus on Analog Communications.
 
