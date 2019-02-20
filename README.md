@@ -9,7 +9,7 @@ I was born and brought in a small town in Southern India. With a great motivatio
 So, what would be the first option for a small town kid to plan for his future, who has never came across internet or smartphone?
 It's experiences and advices of the elderly and educated.
 
-After a lot of informative discussions, I have decided to pursue AIEEE. For those who don't know it, It's second most valued National Level Entrance Exam for Undergraduate Studies in India. But, after heading to the college, destiny wanted me to explore something else more complex and interesting i.e. IIT-JEE. Top ranked examination in India, holds a top 10 position across World.  
+After a lot of informative discussions, I have decided to pursue AIEEE. For those who don't know it, It's second most valued National Level Entrance Exam for Undergraduate Studies in India. But, after heading to the college, destiny wanted me to explore something else more complex and interesting i.e. IIT-JEE. Top ranked examination in India, holds a top 10 position in toughest examinations across World.  
 
 I was able to crack it with a great will to succeed and support from my mentors and friends. I was very glad to clear the exam but that ecstasy didn't last long. **Why ?**
 
